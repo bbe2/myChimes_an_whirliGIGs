@@ -13,7 +13,10 @@ This page keeps growing with my tools, processes, and optimal methods such as us
 ![whiriligig2](https://user-images.githubusercontent.com/59778456/194327897-abec579b-0dbf-4f32-84b2-cadcc975a466.JPG)
 
 Gold scrapping is also incredibly fun and environmentally rewarding.
+The bottom line with gold scrapping is whether you can readily collect computers, telecom, and any stereo equipment with gold-plated connectors. If not, it is not as worth it as you need to stockpile a bit to resell on eBay or extract the gold yourself.
 
- The bottom line with gold scrappng is this, if you access to a facility that gets tvs, old computers, telecom anything, old stereos (especially Monster equipment) and love to destress banging things up. Well grab all that you can whenever you can. The trick is to take it right apart, get the main boards, and toss all the junk away. If you can do over a gravel road so you dont have to worry about the hundreds of screws you will drop, even better. Then welcome to transistors, varistors, tantulum, palladium, silver, and gold harvesting. Seem weird? well, just go on ebay and type gold circuit board fingers and it will start to make some sense.
- 
-Reach out if would like to understand the ins and outs, b.hogan@snhu.edu.
+The trick is to take the items apart right away. If you can unscrew it while on your truck tailgate, it will make clean-up much faster. I like this video to learn about valuable pieces such as varistors, tantalum, palladium, silver, and gold fingerlings.
+
+https://www.youtube.com/watch?v=qr-cKBEoKc0&list=LL&index=14
+
+Reach out if you would like to understand more ins and outs! b.hogan@snhu.edu.
