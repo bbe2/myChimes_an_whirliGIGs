@@ -8,7 +8,7 @@ My main gig, is whirligigs and gongs. I love to hear them and hope to inspire ot
   
 ![whirligig_night](https://user-images.githubusercontent.com/59778456/204308612-dcdd21d2-3f98-41de-b075-142c8ba48834.jpg)
 
-### November 2022 My new gong!
+### November 2021 My windchime for Archangel Gabriel
   
 
 ![gong(need new shots)](https://user-images.githubusercontent.com/59778456/204309171-bfb2d337-2566-4eb0-bd24-f17de5114bf6.JPG)
